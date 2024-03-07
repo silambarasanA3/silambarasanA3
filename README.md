@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @silambarasanA3
 - 👀 I’m interested in Data Engineering and AI&ML
 - 🌱 I’m currently learning ML
-- 💞️ I’m looking to collaborate on Inovators
+- 💞️ I’m looking to collaborate with Inovating thinking peoples
 - 📫 How to reach me silambujayan9293@gmail.com
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: NA
